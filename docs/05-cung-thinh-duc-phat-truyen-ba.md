@@ -1,6 +1,7 @@
 ## Cung thỉnh Đức Phật truyền bá Giáo Pháp
 
-> _"Người thấm nhuần Giáo Pháp sống hạnh phúc với tâm an lạc. Người trí tuệ luôn luôn hoan hỷ thỏa thích trong Giáo Pháp mà các bậc thánh nhân đã khám phá".  - Kinh Pháp Cú_
+> _Người thấm nhuần Giáo Pháp sống hạnh phúc với tâm an lạc. Người trí tuệ luôn luôn hoan hỷ thỏa thích trong Giáo Pháp mà các bậc thánh nhân đã khám phá._
+> - Kinh Pháp Cú
 
 **Giáo Pháp Là Thầy** 
 

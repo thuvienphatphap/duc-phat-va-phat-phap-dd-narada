@@ -1,6 +1,7 @@
 ## Sau khi Thành Đạo
 
-> _"Trên thế gian, không luyến ái là hạnh phúc" -- Udana_
+> _Trên thế gian, không luyến ái là hạnh phúc_ 
+> - Udana
 
 Trong buổi sáng, ngay trước ngày Thành Đạo, lúc Bồ Tát ngồi dưới gốc cây cổ thụ Ajapala gần cội Bồ Đề, thì có một bà giàu lòng quảng đại tên Sujata thình lình dâng đến Ngài một vật thực bằng gạo với sữa mà bà đã công khó tự tay tỉ mỉ làm lấy. Sau khi thọ xong bữa ăn có nhiều chất dinh dưỡng ấy, Đức Phật nhịn đói luôn suốt bảy tuần nhật. Ngài trải qua thời gian bốn mươi chín ngày yên lặng để suy niệm, quanh quẩn dưới gốc cây Bồ Đề.
 

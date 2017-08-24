@@ -1,4 +1,3 @@
 {
     "root": "./docs"
-    // "plugins": ["-search", "-lunr", "-highlight"]
 }

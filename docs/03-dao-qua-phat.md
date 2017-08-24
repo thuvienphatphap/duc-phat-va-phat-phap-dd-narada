@@ -1,6 +1,7 @@
 ## Đạo Quả Phật
 
-> _"Các Đấng Như Lai chỉ là những vị thầy" - Kinh Pháp Cú_
+> _Các Đấng Như Lai chỉ là những vị thầy_
+> - Kinh Pháp Cú
 
 **Đặc Điểm Của Đức Phật**
 

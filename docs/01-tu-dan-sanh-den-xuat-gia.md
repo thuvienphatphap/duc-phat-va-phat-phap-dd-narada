@@ -1,6 +1,7 @@
 ## Từ Đản Sanh đến Xuất Gia
 
-> _"Một Chúng Sanh duy nhất, một Con Người phi thường, xuất hiện trong thế gian này, vì lợi ích cho phần đông, vì hạnh phúc của phần đông, vì lòng bi mẫn, vì sự tốt đẹp, vì lợi ích và hạnh phúc của chư Thiên và nhân loại." -- Tăng Nhứt A Hàm[^1]_
+> _Một Chúng Sanh duy nhất, một Con Người phi thường, xuất hiện trong thế gian này, vì lợi ích cho phần đông, vì hạnh phúc của phần đông, vì lòng bi mẫn, vì sự tốt đẹp, vì lợi ích và hạnh phúc của chư Thiên và nhân loại._
+> - Tăng Nhứt A Hàm[^1]
 
 **Đản Sanh**
 

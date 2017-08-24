@@ -1,6 +1,7 @@
 ## Chiến đấu để thành đạt Đạo Quả
 
-> _"Làm việc xấu xa và vô ích thì dễ, Nhưng làm được những điều hữu ích và tốt đẹp, quả thật là rất khó."   - Kinh Pháp Cú._
+> _Làm việc xấu xa và vô ích thì dễ, Nhưng làm được những điều hữu ích và tốt đẹp, quả thật là rất khó._
+> - Kinh Pháp Cú.
 
 **Cuộc Chiến Đấu** 
 
